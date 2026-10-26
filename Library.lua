@@ -5,10 +5,10 @@
     This is a FREE ui release made by me (samet) on May 30 to celebrate my birthday, If anyone is selling this they are scammers.
     The design credits for the ui goes to eskolzz. It was brought to life in luau by me.
 
-    MY ONLY ACCOUNT IS: joestar._3
+    MY ONLY ACCOUNT IS: c1bg4
 
     If you want to commission a ui:
-    https://discord.gg/XsTteAwprs
+    https://discord.gg/ASjjYNnPkP
 
     Please give credit if used or modified.
 ]]
